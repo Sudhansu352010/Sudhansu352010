@@ -1,4 +1,4 @@
-[![Sudhansu352010](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://SudhansuSekharPradhan.io)
+[![Sudhansu352010](https://cdn.dribbble.com/users/1102230/screenshots/3308591/data_analytics.gif)](https://SudhansuSekharPradhan.io)
 
 <h1 align="center">Hi 👋, I'm Sudhansu Sekhar Pradhan</h1>
 <h3 align="center">A dedicated Data Analyst with a fervent curiosity for extracting meaningful insights from Complex datasets.</h3>
